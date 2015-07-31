@@ -1,1 +1,1 @@
-Minigame≥ı º∞Ê±æ
+Minigame
