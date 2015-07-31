@@ -1,1 +1,1 @@
-Minigame
+Minigame Demo
